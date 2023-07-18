@@ -52,4 +52,4 @@ If I find myself facing a situation involving sexual harassment, it's important 
 
 - Seek legal advice if necessary: If the harassment persists, escalates, or if you encounter barriers in addressing the situation, you may want to consult with a lawyer or seek legal advice to understand your rights and explore available legal options.
 
-So, it's always import to be in good environment where you will get respect, peace and surround by well-wishers.
+So, it's always important to be in good environment where you will get respect, peace and surrounded by well-wishers.
