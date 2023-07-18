@@ -16,19 +16,19 @@ Sexual harassment can be caused by various types of behavior, and prevention eff
 
 To prevent sexual harassment effectively, organizations, institutions, and communities should consider the following preventive measures:
 
-a. Establish clear policies: Develop and communicate clear policies against sexual harassment, ensuring that all individuals are aware of the expectations and consequences for violating those policies.
+-  Establish clear policies: Develop and communicate clear policies against sexual harassment, ensuring that all individuals are aware of the expectations and consequences for violating those policies.
 
-b. Education and training: Provide comprehensive education and training programs on sexual harassment awareness, prevention, and bystander intervention. These programs should emphasize consent, respectful communication, and the reporting process.
+-  Education and training: Provide comprehensive education and training programs on sexual harassment awareness, prevention, and bystander intervention. These programs should emphasize consent, respectful communication, and the reporting process.
 
-c. Promote a respectful culture: Foster a culture of respect, equality, and inclusivity where all individuals are treated with dignity and professionalism.
+-  Promote a respectful culture: Foster a culture of respect, equality, and inclusivity where all individuals are treated with dignity and professionalism.
 
-d. Encourage reporting: Establish multiple avenues for reporting incidents of sexual harassment, ensuring confidentiality and protection against retaliation. Encourage individuals to report any incidents promptly.
+-  Encourage reporting: Establish multiple avenues for reporting incidents of sexual harassment, ensuring confidentiality and protection against retaliation. Encourage individuals to report any incidents promptly.
 
-e. Investigate and address complaints: Take all complaints seriously and conduct thorough and impartial investigations. Implement appropriate disciplinary measures when harassment is substantiated.
+-  Investigate and address complaints: Take all complaints seriously and conduct thorough and impartial investigations. Implement appropriate disciplinary measures when harassment is substantiated.
 
-f. Support services: Provide support services such as counseling, resources, and helplines for individuals who experience or witness sexual harassment.
+-  Support services: Provide support services such as counseling, resources, and helplines for individuals who experience or witness sexual harassment.
 
-g. Regular reviews and updates: Regularly review and update policies, procedures, and preventive measures to adapt to changing needs and best practices.
+-  Regular reviews and updates: Regularly review and update policies, procedures, and preventive measures to adapt to changing needs and best practices.
 
 By implementing these measures, organizations and communities can work towards preventing sexual harassment, fostering safe environments, and promoting respect and equality for all individuals.
 
